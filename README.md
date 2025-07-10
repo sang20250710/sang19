@@ -10,4 +10,4 @@
 
 这些平台提供丰富的李丽珍系列优质资源，涵盖各类国产精品内容，更新及时、分类详细，方便用户查找。每个视频页面均有影片时长、主演、清晰度等信息，支持高清视频播放，并可根据网络环境自动调整画质，确保观看顺畅。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sang20250710/sang19 ）</span>
